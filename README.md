@@ -1,4 +1,4 @@
-- 👋  Hi, I’m @cambardo
+- 👋  Hi, I’m Cameron
 - 👀  I’m interested in linguistics & language learning
 - 🗣 I speak English, Japanese, and a little Mandarin
 - 🌱  I’m currently learning Spanish
